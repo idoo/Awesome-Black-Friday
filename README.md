@@ -22,6 +22,7 @@
 
 **Parallels** *25% off* [https://www.parallels.com/eu/products/desktop/buy/](https://www.parallels.com/eu/products/desktop/buy/)
 
+**SetApp** *20% off for year plan* [https://setapp.com/partner/black-friday-offer](https://setapp.com/partner/black-friday-offer)
 
 
 ## Courses
