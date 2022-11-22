@@ -16,6 +16,8 @@
 
 # Applications
 
+**BladeMail** *50% off* [https://blademail.app](https://blademail.app)
+
 **DevUtils** *50% off* [https://devutils.com/](https://devutils.com/)
 
 **LastPass** *25% off* [https://www.lastpass.com/](https://www.lastpass.com/)
