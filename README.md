@@ -13,3 +13,5 @@
 
 **Practical DevSecOps** *15% off* [https://www.practical-devsecops.com/black-friday/](https://www.practical-devsecops.com/black-friday/)
 
+**Pluralsight** *50% off* [https://www.pluralsight.com/](https://www.pluralsight.com/)
+
