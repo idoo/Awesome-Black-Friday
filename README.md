@@ -26,6 +26,7 @@
 
 **SetApp** *20% off for year plan* [https://setapp.com/partner/black-friday-offer](https://setapp.com/partner/black-friday-offer)
 
+**Xnapper** *50% off* [https://xnapper.com/pricing](https://xnapper.com/pricing)
 
 ## Courses
 
