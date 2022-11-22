@@ -25,6 +25,8 @@
 
 **Practical DevSecOps** *15% off* [https://www.practical-devsecops.com/black-friday/](https://www.practical-devsecops.com/black-friday/)
 
+**Udemy** *Courses as low as €9.99* [https://www.udemy.com/](https://www.udemy.com/)
+
 
 ## Other
 
