@@ -29,6 +29,7 @@
 
 **Udemy** *Courses as low as €9.99* [https://www.udemy.com/](https://www.udemy.com/)
 
+**Rosetta Stone** *149$ lifetime access* [https://www.rosettastone.com/black-friday-sale/](https://www.rosettastone.com/black-friday-sale/)
 
 ## Other
 
