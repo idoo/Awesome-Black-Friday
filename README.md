@@ -21,6 +21,8 @@
 
 ## Courses
 
+**Cybrary** *20% off annual memberships with code: BlackFriday20* [https://www.cybrary.it/upgrade/checkout/?utm_campaign=black-friday-promo](https://www.cybrary.it/upgrade/checkout/?utm_campaign=black-friday-promo)
+
 **Pluralsight** *50% off* [https://www.pluralsight.com/](https://www.pluralsight.com/)
 
 **Practical DevSecOps** *15% off* [https://www.practical-devsecops.com/black-friday/](https://www.practical-devsecops.com/black-friday/)
