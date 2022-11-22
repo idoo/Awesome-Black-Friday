@@ -16,6 +16,8 @@
 
 # Applications
 
+**DevUtils** *50% off* [https://devutils.com/](https://devutils.com/)
+
 **LastPass** *25% off* [https://www.lastpass.com/](https://www.lastpass.com/)
 
 **Parallels** *25% off* [https://www.parallels.com/eu/products/desktop/buy/](https://www.parallels.com/eu/products/desktop/buy/)
