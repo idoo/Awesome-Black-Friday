@@ -17,3 +17,7 @@
 
 **Pluralsight** *50% off* [https://www.pluralsight.com/](https://www.pluralsight.com/)
 
+
+## Other
+
+**iFixIt** *Free shipping on orders $65+ and 25% off on bundles* [https://www.ifixit.com/promotions/black-friday-holiday](https://www.ifixit.com/promotions/black-friday-holiday)
