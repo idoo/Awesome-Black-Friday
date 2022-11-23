@@ -42,6 +42,8 @@
 
 ## Other
 
+**Sonos** *20% off* [https://www.sonos.com/en-us/shop/promotional-offers](https://www.sonos.com/en-us/shop/promotional-offers)
+
 **iFixIt** *Free shipping on orders $65+ and 25% off on bundles* [https://www.ifixit.com/promotions/black-friday-holiday](https://www.ifixit.com/promotions/black-friday-holiday)
 
 
