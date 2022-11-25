@@ -40,6 +40,10 @@
 
 **Rosetta Stone** *149$ lifetime access* [https://www.rosettastone.com/black-friday-sale/](https://www.rosettastone.com/black-friday-sale/)
 
+## Books
+**Nostarch press** *35% off* [https://nostarch.com](https://nostarch.com)
+
+
 ## Other
 
 **Sonos** *20% off* [https://www.sonos.com/en-us/shop/promotional-offers](https://www.sonos.com/en-us/shop/promotional-offers)
