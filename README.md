@@ -28,6 +28,8 @@
 
 **Xnapper** *50% off* [https://xnapper.com/pricing](https://xnapper.com/pricing)
 
+**Little Snitch	** *50% off* [https://www.obdev.at/products/littlesnitch/order.html](https://www.obdev.at/products/littlesnitch/order.html)
+
 ## Courses
 
 **Cybrary** *20% off annual memberships with code: BlackFriday20* [https://www.cybrary.it/upgrade/checkout/?utm_campaign=black-friday-promo](https://www.cybrary.it/upgrade/checkout/?utm_campaign=black-friday-promo)
