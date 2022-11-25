@@ -42,6 +42,8 @@
 
 **DroneSec** *40% off* [https://training.dronesec.com](https://training.dronesec.com)
 
+**Pluralsight** *50% off* [https://www.pluralsight.com/offer/2022/bf-cm-50-off](https://www.pluralsight.com/offer/2022/bf-cm-50-off)
+
 ## Books
 **Nostarch press** *35% off* [https://nostarch.com](https://nostarch.com)
 
