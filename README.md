@@ -40,6 +40,8 @@
 
 **Rosetta Stone** *149$ lifetime access* [https://www.rosettastone.com/black-friday-sale/](https://www.rosettastone.com/black-friday-sale/)
 
+**DroneSec** *40% off* [https://training.dronesec.com](https://training.dronesec.com)
+
 ## Books
 **Nostarch press** *35% off* [https://nostarch.com](https://nostarch.com)
 
