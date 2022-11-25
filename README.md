@@ -28,7 +28,7 @@
 
 **Xnapper** *50% off* [https://xnapper.com/pricing](https://xnapper.com/pricing)
 
-**Little Snitch	** *50% off* [https://www.obdev.at/products/littlesnitch/order.html](https://www.obdev.at/products/littlesnitch/order.html)
+**Little Snitch** *50% off* [https://www.obdev.at/products/littlesnitch/order.html](https://www.obdev.at/products/littlesnitch/order.html)
 
 ## Courses
 
