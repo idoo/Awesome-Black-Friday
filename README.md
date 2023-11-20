@@ -24,7 +24,7 @@
 
 ## Productivity
 
-**OneWeek** (80% OFF) [https://oneweek.app](https://oneweek.app)
+**OneWeek** (34% OFF) [https://oneweek.app](https://oneweek.app)
 
 **Chronos Planner** (50% OFF) [https://bosc.app/chronos.html](https://bosc.app/chronos.html) 
 
