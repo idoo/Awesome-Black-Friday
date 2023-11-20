@@ -17,6 +17,7 @@
 ## Write
 
 **YomuAI** (25% OFF) [https://www.yomu.ai](https://www.yomu.ai) CODE: *BLACKFRIDAY23*
+
 **Writers brew** (50% OFF) [https://writersbrew.app](https://writersbrew.app)
 
 ## Productivity
