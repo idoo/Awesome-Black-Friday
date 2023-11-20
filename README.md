@@ -33,5 +33,7 @@
 
 **Sonos** (different deals) [https://www.sonos.com/en-us/shop/promotional-offers](https://www.sonos.com/en-us/shop/promotional-offers)
 
+**Playlist AI** (50% OFF) [https://www.playlistai.app/](https://www.playlistai.app/)
+
 
 
