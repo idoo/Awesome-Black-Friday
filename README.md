@@ -11,9 +11,18 @@
 
 **Clawsapp** (50% OFF) [https://clawsapp.com](https://clawsapp.com) CODE: *BF2023*
 
+**Aptakube** (30% OFF) [https://aptakube.com/](https://aptakube.com/) *BLACKFRIDAY2023*
+
+
 ## Write
 
-**YomuAI** [https://www.yomu.ai](https://www.yomu.ai) *BLACKFRIDAY23*
+**YomuAI** (25% OFF) [https://www.yomu.ai](https://www.yomu.ai) *BLACKFRIDAY23*
+**Writers brew** (50% OFF) [https://writersbrew.app](https://writersbrew.app)
+
+## Productivity
+
+**Chronos Planner** (50% OFF) [https://bosc.app/chronos.html](https://bosc.app/chronos.html) 
+
 
 ## Other
 
