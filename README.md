@@ -23,6 +23,7 @@
 ## Productivity
 
 **Chronos Planner** (50% OFF) [https://bosc.app/chronos.html](https://bosc.app/chronos.html) 
+**YouTube Summarized** (20% OFF) [https://www.youtubesummarized.com](https://www.youtubesummarized.com) CODE: BLACKFRIDAY2023
 
 
 ## Other
