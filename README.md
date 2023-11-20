@@ -7,6 +7,8 @@
 
 **Findmyports** (50% OFF) [https://www.findmyports.com](https://www.findmyports.com) CODE: *BLACKFRIDAY2023*
 
+**Sparkle** (40% OFF) [https://sparkleapp.com/](https://sparkleapp.com/)
+
 **Proxyman** (30% OFF) [https://proxyman.io](https://proxyman.io) CODE: *PROXYMAN_BLACKFRIDAY_2023*
 
 **Clawsapp** (50% OFF) [https://clawsapp.com](https://clawsapp.com) CODE: *BF2023*
