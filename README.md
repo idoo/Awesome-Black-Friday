@@ -5,7 +5,7 @@
 
 ## Other
 
-**Sonos** *20% off* [https://www.sonos.com/en-us/shop/promotional-offers](https://www.sonos.com/en-us/shop/promotional-offers)
+**Sonos** (different deals) [https://www.sonos.com/en-us/shop/promotional-offers](https://www.sonos.com/en-us/shop/promotional-offers)
 
 
 
