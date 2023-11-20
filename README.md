@@ -13,7 +13,7 @@
 
 ## Write
 
-**YomuAI** [https://www.yomu.ai/](https://www.yomu.ai) *BLACKFRIDAY23*
+**YomuAI** [https://www.yomu.ai](https://www.yomu.ai) *BLACKFRIDAY23*
 
 ## Other
 
