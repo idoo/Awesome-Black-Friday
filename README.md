@@ -5,11 +5,11 @@
 
 ## Dev tools
 
-**Findmyports** (50% OFF) [https://www.findmyports.com/](https://www.findmyports.com) *BLACKFRIDAY2023*
+**Findmyports** (50% OFF) [https://www.findmyports.com](https://www.findmyports.com) *BLACKFRIDAY2023*
 
-**Proxyman** (30% OFF) [https://proxyman.io/](https://proxyman.io)) *PROXYMAN_BLACKFRIDAY_2023*
+**Proxyman** (30% OFF) [https://proxyman.io](https://proxyman.io)) *PROXYMAN_BLACKFRIDAY_2023*
 
-**Clawsapp** (50% OFF) [https://clawsapp.com/](https://clawsapp.com) *BF2023*
+**Clawsapp** (50% OFF) [https://clawsapp.com](https://clawsapp.com) *BF2023*
 
 ## Write
 
